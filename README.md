@@ -1,1 +1,1 @@
-The clue words: JETPACK
+The clue word: JETPACK
